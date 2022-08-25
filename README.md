@@ -1,4 +1,4 @@
-# Eivind Holvik - Teacher ata Noroff
+# Eivind Holvik - Teacher at Noroff
 
 ### Hi there 👋
 
